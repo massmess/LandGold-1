@@ -1,2 +1,1 @@
-# LandGold-1
-He who has land has gold.
+He who has land has gold. 有土斯有財。
